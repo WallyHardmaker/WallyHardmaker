@@ -1,6 +1,1 @@
-- 👋 Hi, I’m @WallyHardmaker
-- 👀 I’m interested in GAMEDEVELOPMENT.CHARACTERDESIGN.STORYWRITING.3DMODELLING.JAPANESEVIDEOGAMES -
-- 🌱 I’m currently learning JAPANESELANGUAGE
-- 💞️ I’m looking to collaborate on VIDEOGAMEPROJECTS.ASA3DMODELLER - THAT IS
-- 📫 How to reach me MY DISCORDO.ウォーリー・ハードメーカー#2187
-- 👍 Have a.GOODDAY
+I love gaming and lean and Ps2
